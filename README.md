@@ -1,4 +1,5 @@
 ![Screenshot_٢٠٢٣١٢٢٨-١٩٠٩١١](https://github.com/Jusncdo/Jusncdo/assets/170464287/9357b85f-47d0-44de-92f4-0d9bfc3742eb)
+ملف باسوردات جاهز اضغط للتحميل 
 [passwords.txt](https://github.com/Jusncdo/Jusncdo/files/15394553/passwords.txt)
 - 👋 Hi, I’m @Jusncdo
 - 👀 I’m interested in ...
